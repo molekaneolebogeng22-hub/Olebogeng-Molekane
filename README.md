@@ -43,7 +43,7 @@ Check out my repositories to see my work!
 
 ## 📫 Connect With Me
 - GitHub: [molekaneolebogeng22-hub ]( molekaneolebogeng22-hub)  
-- LinkedIn: [https://www.linkedin.com/in/YourLinkedIn](https://www.linkedin.com/in/YourLinkedIn)  
+- LinkedIn: [www.linkedin.com/in/olebogeng-molekane-517448332 ](www.linkedin.com/in/olebogeng-molekane-517448332)  
 
 ---
 
